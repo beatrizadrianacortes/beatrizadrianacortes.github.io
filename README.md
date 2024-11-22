@@ -1,1 +1,0 @@
-# beatrizadrianacortes.github.io
